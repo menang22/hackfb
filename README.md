@@ -1,0 +1,1 @@
+Jangan dipersalahgunakan ya sob
